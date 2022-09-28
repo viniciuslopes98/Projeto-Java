@@ -16,7 +16,6 @@
 
 ![Slide10](https://user-images.githubusercontent.com/105940878/186055125-b80b33d5-c696-4174-81fb-689c493dccad.jpg)
 
-![Slide11](https://user-images.githubusercontent.com/105940878/186055313-010ec000-3633-4d99-a62d-999f6f088387.jpg)
 
 
 
